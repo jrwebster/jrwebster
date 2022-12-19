@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Jason R. Webster (@jrwebster)
+- 👀 I’m interested in weather and climate
+- 📫 How to reach me ... contact@atmosci.com
